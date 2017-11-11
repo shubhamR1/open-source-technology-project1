@@ -1,1 +1,0 @@
-# open-source-technology-project1
